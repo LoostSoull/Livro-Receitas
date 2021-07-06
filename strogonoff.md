@@ -1,0 +1,1 @@
+#strogonoff de frango ###ingredientes:- um peito de frango sem pele- um tablete de caldo de galinha- 3 colheres de sopa de oleo- 2 latas de creme de leite sem soro- 2 colheres de sopa de molho de tomate-  2 colheres de sopa de ketchup- 2 colheres de sopa de mostarda- champingnon- batata palha e arroz branco para acompanhar!
